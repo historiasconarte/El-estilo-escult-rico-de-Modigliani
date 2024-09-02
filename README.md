@@ -1,4 +1,4 @@
-# La-escultura-olvidada-de-Modigliani
+#El estilo escultórico de Modigliani
 
 Amedeo Modigliani es conocido por sus icónicos retratos alargados, pero su talento no se limitó a la pintura. En un breve período de su carrera, incursionó en la escultura, creando obras que reflejan su estilo único y su inclinación por las formas humanas alargadas. Una de las piezas más representativas de esta etapa es la "Cabeza de mujer", realizada en 1912 en piedra arenisca.
 
